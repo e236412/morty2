@@ -8,6 +8,8 @@ _get schwifty_
 **wabadabadubdub**
 
 > "Morty sonds like Marty McFly"
+>
+>"Rick is like doc"
 
 
 you [get ricked](https://www.google.com)
