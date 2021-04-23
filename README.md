@@ -5,6 +5,6 @@
 
 _get schwifty_
 
-_**wabadabadubdub**_
-rick is great
+**wabadabadubdub**
+
 
