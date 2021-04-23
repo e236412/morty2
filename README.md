@@ -8,4 +8,4 @@ _get schwifty_
 **wabadabadubdub**
 
 
-you [get ricked](www.google.com)
+you [get ricked](https://www.google.com)
