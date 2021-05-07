@@ -4,7 +4,7 @@ hallo0mnmnmnmnkmmnmnmnmn
 ### Rick and Morty
 #### Rich and Morty
 
-lo
+lol
 
 _get schwifty_
 
